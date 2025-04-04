@@ -1,6 +1,6 @@
 # Juul ve Juul Pod Satın Al | Orijinal Ürünler - Hızlı Kargo
 
-## <a href="https://podsturkiye6.com" title="jull">IPTV SATIN ALMAK İÇİN TIKLA</a>
+## <a href="https://podsturkiye6.com" title="jull">JULL SATIN ALMAK İÇİN TIKLA</a>
 
 ![Juul Cihazı](./juul.jpg)
 
