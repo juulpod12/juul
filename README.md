@@ -1,6 +1,6 @@
 # Juul ve Juul Pod Satın Al | Orijinal Ürünler - Hızlı Kargo
 
-👉 Hemen Satın Al ## <a href="http://podsturkiye6.com/" title="juul">JULL SATIN ALMAK İÇİN TIKLA</a>
+👉 Hemen Satın Al  <a href="http://podsturkiye6.com/" title="juul">JULL SATIN ALMAK İÇİN TIKLA</a>
 
 
 ![Juul Cihazı](./juul.jpg)
