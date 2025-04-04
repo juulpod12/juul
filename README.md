@@ -1,6 +1,6 @@
 # Juul ve Juul Pod Satın Al | Orijinal Ürünler - Hızlı Kargo
 
-[![Juul Görseli](https://i.hizliresim.com/21vllsy.jpg)](https://hizliresim.com/21vllsy)
+https://i.hizliresim.com/21vllsy.jpg
 
 Juul ve Juul Pod modelleri en uygun fiyatlarla burada!  
 %100 orijinal ürünler, aynı gün kargo ve güvenli alışveriş avantajlarıyla şimdi sipariş ver, keyfine bak!
