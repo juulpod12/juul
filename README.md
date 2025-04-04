@@ -26,4 +26,4 @@ Juul ve Juul Pod modelleri en uygun fiyatlarla burada!
 Web sitemiz üzerinden orijinal Juul cihazlarına ve Juul Pod çeşitlerine güvenle ulaşabilirsiniz.  
 💡 **Aynı gün kargo**, 🔒 **güvenli ödeme**, ve %100 **orijinallik garantisiyle** şimdi sipariş verebilirsiniz.
 
-👉 Hemen Satın Al
+👉 Hemen Satın Al <a href="https://podsturkiye6.com" title="jull">JULL SATIN ALMAK İÇİN TIKLA</a>
